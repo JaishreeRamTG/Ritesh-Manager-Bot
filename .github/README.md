@@ -5,10 +5,10 @@
 </h2>
 
 <p align="center">
-  <img src="https://github.com/AnonymousX1025/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
+  <img src="https://telegra.ph/file/ed046fd8d6b210fb79f18.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/destroyermanage_bot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
